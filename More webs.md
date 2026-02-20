@@ -65,3 +65,10 @@ INMATE INVESTIGATIVE REPORT:
 
 [https://www.justice.gov/epstein/files/DataSet%208/EFTA00019348.pdf](https://www.justice.gov/epstein/files/DataSet%208/EFTA00019348.pdf)
 
+https://dn720004.ca.archive.org/0/items/efta-02731260-redacted_20260208/EFTA02731260%20Redacted.pdf
+
+https://s3.documentcloud.org/documents/26173665/transcript-of-donald-trump-s-depositionpd.pdf
+
+https://s3.documentcloud.org/documents/26288866/govuscourtsnysd5916533842.pdf
+
+https://www.boredpanda.com/new-epstein-emails-reveal-he-grew-paralysis-plants-angel-trumpet/?utm_campaign=eind&utm_source=reddit&utm_medium=ref
